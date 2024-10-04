@@ -28,7 +28,7 @@ don't be afraid to talk to me if you like either of these!!<br/>
 ***
 ### **ETC:**<br/>
 i'm on and off on pony.town and usually i come on as whatever pony i choose.br/>
-usually that'll range to whatever interest i'm in currently, but for the main ones...br/>
+usually that'll range to whatever interest i'm in currently, but for the main ones...<br/>
 i'll mostly be **hal jordan/green lantern**, **krillin**, and **astro boy**.br/>
 \
 anyway-- idm chatting! it's cool to meet fellow dc fans on here once in a while!
