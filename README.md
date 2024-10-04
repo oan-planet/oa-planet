@@ -12,7 +12,7 @@ i'm pretty awkward, and i know pony.town is a wild rodeo with a few bad eggs.<br
 \
 **i'm not very active on here!** if you wish to be friends, you can ask!<br/>
 please keep in mind i don't like to talk to people who are way younger than me.<br/>
-if you are **over the age of 16**, i'm fine being mutual at least.<br/>
+i won't friend anyone under 16, and even then I am uncomfortable being close friends with minors.<br/>
 **please iwc if you are younger than me as i am 19. please be safe online y'all!**
 ***
 ### **INTERESTS:**<br/>
